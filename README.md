@@ -1,11 +1,4 @@
 # Training
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
-Conflit
+
+On en a #gros
+de tous ces conflits
